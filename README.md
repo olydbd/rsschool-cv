@@ -1,1 +1,1 @@
-# rsschool-cv
+https://olydbd.github.io/rsschool-cv/cv
