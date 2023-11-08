@@ -1,1 +1,1 @@
-https://olydbd.github.io/rsschool-cv/cv
+https://olydbd.github.io/rsschool-cv/
